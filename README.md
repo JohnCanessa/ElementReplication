@@ -14,6 +14,11 @@ Next time you are planning on signing up for an on-line course
 make sure that you learn as much as possible about the course
 as possible.
 
+If interest in the associated post in my blog, I invite you to
+take a look at:
+
+https://www.johncanessa.com/2022/09/17/element-replication/
+
 Enjoy;
 
 John
